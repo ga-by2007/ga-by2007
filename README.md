@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ga-by2007
+- 👀 meu email é "nãotenhoemail.gmail.com
+- 🌱 no momento nao tenho interesse em nada
